@@ -1,0 +1,1 @@
+# Vibrational-Analysis-of-Corrugated-sheet-using-Orthotropic-Plate-Model-with-Different-Boundary-Con
